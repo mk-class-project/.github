@@ -2,7 +2,7 @@
 
 this me > [Github](https://github.com/Marksu-u)
 
-me got [bento](https://bento.me/mkzz) too
+got [socials](https://x.com/marksu_u) too
 
 i put all school project here
 so me github not messy with half-baked stuff
